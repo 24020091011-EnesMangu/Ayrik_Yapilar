@@ -1,1 +1,0 @@
-# Ayrik_Yapilar
